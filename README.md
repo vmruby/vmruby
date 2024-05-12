@@ -1,10 +1,10 @@
 ### OPA
-Steam: vm ruby
+Steam: vm rubi
 
-instagram: vmrubyy
+instagram: vmrubiii
 
 
-![](https://media1.tenor.com/m/apAYwC8pEloAAAAd/bocchi-the-rock-anime.gif)
+![](https://br.pinterest.com/pin/357825132913236665/)
 
 
 só isso mesmo
